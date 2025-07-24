@@ -1,4 +1,9 @@
-- 👋 Hi, I’m @Cis
-- 👀 I’m interested in Getting to know you better <3
-- 🌱 I’m currently learning LUA for ROBLOX
-- 📫 How to reach me Through Discord : .zero.deaths or https://discord.gg/bk7RV3y97y
+- 👋 Hey, I’m @Cis
+- I’m currently learning most programming languages. (Java, Lua, Batch, etc.)
+- There are many ways to reach me,
+[Discord](https://discord.com/users/645163822298169356)
+[Instagram](https://www.instagram.com/cis.luvs)
+[TikTok](https://www.tiktok.com/@cisluvs)
+[YouTube](https://www.youtube.com/@cisluvs)
+[Twitch](https://www.youtube.com/@cisluvs)
+[X/Twitter](https://x.com/cisluvs)
