@@ -5,5 +5,5 @@
 [Instagram](https://www.instagram.com/cis.luvs)
 [TikTok](https://www.tiktok.com/@cisluvs)
 [YouTube](https://www.youtube.com/@cisluvs)
-[Twitch](https://www.youtube.com/@cisluvs)
+[Twitch](https://www.twitch.tv/cisluvs)
 [X/Twitter](https://x.com/cisluvs)
