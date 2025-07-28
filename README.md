@@ -1,5 +1,5 @@
 - 👋 Hey, I’m @Cis
-- I’m trying to learning most programming languages.
+- I’m trying to learn most programming languages.
 - There are many ways to reach me,
 [Discord](https://discord.com/users/645163822298169356),
 [Instagram](https://www.instagram.com/cis.luvs),
